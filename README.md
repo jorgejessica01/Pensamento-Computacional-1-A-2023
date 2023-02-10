@@ -1,1 +1,1 @@
-# Pensamento-Computacional---1-A-2023
+# Pensamento-Computacional-1ºA-2023
